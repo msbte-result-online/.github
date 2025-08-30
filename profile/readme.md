@@ -4,8 +4,7 @@
 **Target:** MSBTE students who want to see their result, quickly, safely, and with zero confusion, today.,, Here’s the clean, fast guide you actually need.,, Bookmark this page., Share with friends., And don’t miss the rechecking deadlines.,,
 
 ---
-<img width="1832" height="450" alt="image" src="https://github.com/user-attachments/assets/d63df13a-35e8-428b-b018-2d986c59986a" />
-
+<img width="1122" height="457" alt="image" src="https://github.com/user-attachments/assets/48572eaa-3179-4ea1-a5c4-90cf968d41d6" />
 
 ## MSBTE Result — Quick Links, Official Portals, & App
 
